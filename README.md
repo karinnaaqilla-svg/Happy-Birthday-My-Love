@@ -1,2 +1,12 @@
-# Happy-Birthday-My-Love
-haloooooooo
+# Happy Birthday My Love
+Yth. Bhi, menjelang tarikh Sepuluh April, lahirlah engkau ke dunia yang sementara. Dengan usia yang bertambah dan waktu yang berlali, namun jiwa mu masih belajar bernyawa. Maka ku ucapkan pada mu, diantara luka dan doa yang pernah ada di hidup mu.
+
+Selamat hari jadi untuk mu, yang masih berdiri dan memilih untuk setia pada hidup. Selamat melangkah satu kaki ke arus yang lebih berduri dan sunyi, semoga diantara jalanan yang berduri lebat itu kan ada mawar yang bermekaran menyelimuti duri duri itu. Dan semoga jatuhnya air mata mu dan keringat mu tergantikan dengan suapan kue dari sang Ibunda tersayang dan lantunan doa doa tercurahkan pada hari kelahiran mu, Sayang. Maafkan aku karna tak bisa mendampingi mu untuk meniup lilin yang menjadi saksi bisu atas semua keinginan mu yang enkau harapkan dan lirih doa mu yang engkau lantunkan pelan pelan.
+
+Aku mencintaimu, meskipun pandanganku rabun menggelut meraih ku dalam kegelapan, kau adalah satu yang selalu jelas kulihat hadirnya. Mau dunia bermandi gelap, harum cinta mu selalu merebak kebun hatiku, Kasih ku. Mungkin aku tak banyak bicara tentang perasaanku, tapi mencintai mu terasa begitu nyata. Di saat saat tenang, siang atau malam, kau lah alasan segalanya terasa benar. Jika kau bisa melihat hatiku dengan begitu jelas, kau akan tahu bahwa kau lah yang paling ku sayangi. Tanpa adanya keraguan, tanpa adanya rasa takut dan tanpa jejak perselisihan, kau lah bagian favoritku dalam hidup.
+
+Kau, yang selalu berpendar di langit gelap membuat ku tenang setiap kali aku menatap mu, yang tawa nya selalu indah bak simfoni membuat ku tersenyum ketika menatap nayanika. Aku dibuat jatuh cinta oleh mu berkali kali, dengan paras mu yang indah bak nirwana, senyum mu yang manis bak kue ulang tahun yang dihidangkan untuk keluarga tercinta, dan kehadiran mu yang tak terduga dan bayang mu yang selalu muncul di benak ku, tak sangka, aku di buat kagum oleh mu, Sayang.
+
+Akhir kata aku ingin mengatakan, terima kasih sudah bersemi di semesta yang bernama bumi, menempuh jalan tanpa arah ini meski dengan gentar yang mengikuti. Jika gelap mulai menebar ngeri, atau sepi datang menyakiti, ada nurani yang tak sedetik pun undur diri, mengikat janji untuk terus menemani. Sebagai cakrawala yang menerangi, makhluk langit yang bernyanyi ataupun si jelita mekar yang menari, berharap pada hari kelahiran mu, kau kan  selalu menjadi jiwa yang berseri. Selamat Tujuh Belas, Kasihku. Selamat berkelana pada jalan berikutnya, aku disini kan selalu menggengam tangan mu untuk berjalan berhati hati bersama, berdua, tumbuh bersama. Semoga jalan mu selalu dipenuhi dengan bunga bunga yang indah layaknya hati ku yang berbunga bunga karna mu.
+
+Ton Amour, Karinna.
