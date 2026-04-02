@@ -1,5 +1,5 @@
 # Happy Birthday My Love
-Yth. Bhi, menjelang tarikh Sepuluh April, lahirlah engkau ke dunia yang sementara. Dengan usia yang bertambah dan waktu yang berlali, namun jiwa mu masih belajar bernyawa. Maka ku ucapkan pada mu, diantara luka dan doa yang pernah ada di hidup mu.
+Yth. Bhi, menjelang tarikh Sepuluh April, lahirlah engkau ke dunia yang sementara. Dengan usia yang bertambah dan waktu yang berlalu, namun jiwa mu masih belajar bernyawa. Maka ku ucapkan pada mu, diantara luka dan doa yang pernah ada di hidup mu.
 
 Selamat hari jadi untuk mu, yang masih berdiri dan memilih untuk setia pada hidup. Selamat melangkah satu kaki ke arus yang lebih berduri dan sunyi, semoga diantara jalanan yang berduri lebat itu kan ada mawar yang bermekaran menyelimuti duri duri itu. Dan semoga jatuhnya air mata mu dan keringat mu tergantikan dengan suapan kue dari sang Ibunda tersayang dan lantunan doa doa tercurahkan pada hari kelahiran mu, Sayang. Maafkan aku karna tak bisa mendampingi mu untuk meniup lilin yang menjadi saksi bisu atas semua keinginan mu yang enkau harapkan dan lirih doa mu yang engkau lantunkan pelan pelan.
 
